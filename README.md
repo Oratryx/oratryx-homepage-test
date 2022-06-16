@@ -1,1 +1,0 @@
-# oratryx-homepage-test
